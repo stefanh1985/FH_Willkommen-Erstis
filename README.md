@@ -145,7 +145,21 @@ https://liascript.github.io/course/?https://raw.githubusercontent.com/stefanh198
 
 
 ## 🖥️ W-Lan 
+<div style="width:100%;height:0;padding-bottom:100%;position:relative;"><iframe src="https://giphy.com/embed/OZBlU2QPWsxFK" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/artists-on-tumblr-foxadhd-OZBlU2QPWsxFK">via GIPHY</a></p>
+
 Auf dem ganzen Campus besteht eine W-Lan-Verbindung
 
 
 [WEITER AUSFÜHREN ob ggf. EURON]
+
+## Digitae Hilfestellung
+<div style="width:100%;height:0;padding-bottom:56%;position:relative;"><iframe src="https://giphy.com/embed/wq2UShzWUwVWKjo4IC" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/digitalpratik-digital-pratik-wq2UShzWUwVWKjo4IC">via GIPHY</a></p>
+orca.nrw - Unterstützung für digitales Studieren
+
+Hier erhältst du Informationen über die Angebote des [Landesportals NRW] (https://www.orca.nrw/studierende), die dir dabei helfen, deine Studienziele zu erreichen.
+
+# 🚁 Ich brauche mal Hilfe
+<div style="width:100%;height:0;padding-bottom:75%;position:relative;"><iframe src="https://giphy.com/embed/4SXW1rU9loG1HIXXg2" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/gifs/hyperrpg-game-reaction-4SXW1rU9loG1HIXXg2">via GIPHY</a></p>
+
+Manchmal läuft es im Studium und im Leben nicht so, wie man es sich wünscht. Manchmal können Mitstudierende oder auch Dozierende helfen, aber manchmal reicht das nicht aus, dann benötigt man professionelle Hilfe.
+Unter [HOMEPAGEVERLINKUNG ZU PSYCHOLOGISCHER BERATUN EINESETZTEN]
